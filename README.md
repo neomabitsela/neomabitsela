@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Software Engineering
 - 💞️ I’m looking to collaborate on any employment opportunities.
 - 📫 How to reach me: Contact Number - +27606504169/ Email: mabitsela4@gmail.com 
-- 😄 Pronouns: He/Him
+
 
 
 <!---
